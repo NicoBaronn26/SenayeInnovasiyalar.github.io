@@ -1,1 +1,0 @@
-# SenayeInnovasiyalar.github.io
